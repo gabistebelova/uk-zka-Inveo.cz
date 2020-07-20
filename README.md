@@ -1,1 +1,1 @@
-# uk-zka-Inveo.cz
+# ukazka-Inveo.cz
